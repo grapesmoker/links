@@ -7,4 +7,5 @@ Reading of the day:
 	- [Trump conflicts of interest](http://www.nytimes.com/2016/11/26/us/politics/donald-trump-international-business.html)
 	- [Coverage of Clinton vs. Trump](http://shorensteincenter.org/pre-primary-news-coverage-2016-trump-clinton-sanders/#The_Democratic_Race)
 	- [Two populisms](https://www.thenation.com/article/the-two-populisms/)
+	- [The fall of Deutsche Bank](http://www.spiegel.de/international/business/the-story-of-the-self-destruction-of-deutsche-bank-a-1118157.html)
 
